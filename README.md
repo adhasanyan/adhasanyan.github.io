@@ -1,1 +1,0 @@
-# adhasanyan.github.io
